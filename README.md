@@ -1,1 +1,1 @@
-Hello, I am Biscuit. I am really lazy and hate doing most things not involving a chair and keyboard. Hire me.
+Hello, I am Biscuit. I am really lazy and have a terrible digital footprint.
